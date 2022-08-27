@@ -1,4 +1,4 @@
-# Matt's Prework-study-guide
+# Matthew's Prework-study-guide
 
 ## Description
 
